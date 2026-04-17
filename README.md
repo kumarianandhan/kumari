@@ -1,2 +1,0 @@
-# kumari
-kumari
